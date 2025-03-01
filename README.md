@@ -12,6 +12,11 @@ Simplified Chinese:
 
 本模板可供商用，但其本身禁止倒卖
 
+you can also download this in BaiduNetdisk
+https://pan.baidu.com/s/10MB_pcbMAZ01dqSHbrGprQ?pwd=cute 
+提取码:cute
+
+Or contact me in yezimao_0703@qq.com
 
 By:yezi(椰子)
 2025.3.1
